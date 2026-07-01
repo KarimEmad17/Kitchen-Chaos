@@ -1,6 +1,8 @@
 
 
-Uploading KitchenChaosGamePlay.mp4…
+https://github.com/user-attachments/assets/d07bd253-fa4c-49c5-b66b-9cb3e59cdafe
+
+
 
 
 One-line pitch: A fast-paced, time-pressured cooking simulation where you chop, fry, plate, and deliver dishes before the orders — and the clock — get the better of you.
